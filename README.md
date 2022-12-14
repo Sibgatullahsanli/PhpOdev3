@@ -4,7 +4,7 @@
 
 [GitHub Profilim](https://github.com/Sibgatullahsanli)
 
-** Ödevin içeriği.
+**Ödevin içeriği.
 
 Ödev:
 
